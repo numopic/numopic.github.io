@@ -1,1 +1,0 @@
-# numopic.github.io
